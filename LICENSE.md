@@ -1,4 +1,4 @@
-# 
+# Premium Paint.NET preajustes para Mac OS | Actualizado Paint.NET preajustes para PC Windows. Con muestras de color y gestión de capas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
